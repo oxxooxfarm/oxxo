@@ -11,3 +11,4 @@ go to bed
 to day i predict greem narket
 12121212
 green market 
+high dollo
