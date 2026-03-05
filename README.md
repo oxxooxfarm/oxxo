@@ -12,3 +12,4 @@ to day i predict greem narket
 12121212
 green market 
 high dollo
+day 15 i like all
