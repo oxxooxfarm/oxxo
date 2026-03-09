@@ -17,3 +17,4 @@ day 15 i like all
 i want to ...
 ok naja
 tomorrow price oil is low
+and crypto is pumpup
