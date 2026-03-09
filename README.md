@@ -16,3 +16,4 @@ day 15 i like all
 33
 i want to ...
 ok naja
+tomorrow price oil is low
