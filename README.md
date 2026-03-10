@@ -18,3 +18,4 @@ i want to ...
 ok naja
 tomorrow price oil is low
 and crypto is pumpup
+me true
