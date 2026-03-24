@@ -27,3 +27,4 @@ green graph
 ok
 1+1
 2+2
+5
