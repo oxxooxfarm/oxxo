@@ -4,7 +4,7 @@ start of journeyy
 go to the moon or to the hella
 happy or uglyaa
 new or stupida
-ok bye
+ok byee
 i hate trup
 go go go go
 go to bed
