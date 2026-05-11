@@ -7,7 +7,7 @@ new or stupida
 ok byeea
 i hate trupe
 go go go gogg
-go to bed
+go to bedd
 to day i predict greem narket
 12121212
 green market 
