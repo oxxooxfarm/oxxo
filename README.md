@@ -9,7 +9,7 @@ i hate trupe
 go go go gogg
 go to bedd
 to day i predict greem narket
-121212121
+1212121212
 green market 
 high dollo
 day 15 i like all
