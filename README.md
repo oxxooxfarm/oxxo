@@ -1,6 +1,6 @@
 # oxxo
 funny najaa
-start of journey
+start of journeyy
 go to the moon or to the hell
 happy or ugly
 new or stupid
