@@ -6,7 +6,7 @@ happy or uglyaa
 new or stupida
 ok byeea
 i hate trupe
-go go go gog
+go go go gogg
 go to bed
 to day i predict greem narket
 12121212
