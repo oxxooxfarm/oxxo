@@ -1,7 +1,7 @@
 # oxxo
 funny najaa
 start of journeyy
-go to the moon or to the hell
+go to the moon or to the hella
 happy or ugly
 new or stupid
 ok bye
