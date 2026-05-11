@@ -2,7 +2,7 @@
 funny najaa
 start of journeyy
 go to the moon or to the hella
-happy or ugly
+happy or uglya
 new or stupid
 ok bye
 i hate trup
