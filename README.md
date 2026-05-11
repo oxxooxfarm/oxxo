@@ -13,7 +13,7 @@ to day i predict greem narket
 green markett 
 high dollol
 day 15 i like all
-33 abcd
+33 abcde
 i want to ...
 ok naja
 tomorrow price oil is low
