@@ -11,7 +11,7 @@ go to bedd
 to day i predict greem narket
 121212121212
 green markett 
-high dollo
+high dollol
 day 15 i like all
 33
 i want to ...
