@@ -34,3 +34,4 @@ ok
 gg
 red flag
 bad day
+oxxo
